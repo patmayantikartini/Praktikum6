@@ -1,0 +1,1 @@
+Saya tidak akan terlambat lagi
