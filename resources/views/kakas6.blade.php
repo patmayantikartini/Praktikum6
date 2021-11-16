@@ -1,1 +1,1 @@
-Saya tidak akan terlambat lagi
+Saya tidak akan terlambat lagi praktikum kakas
